@@ -9,7 +9,7 @@
 
 **Full-stack developer** · CS student (BUT, 3rd year, Reims) · Apprentice at Legras Industries
 
-*Colorblind, so accessibility is never optional. Pianist in my spare time.* 🎹
+*Colorblind, so accessibility is never optional. Pianist in my spare time.* 
 
 <br>
 
